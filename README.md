@@ -1,1 +1,0 @@
-# PruebaDiagnostica_3_ECA
